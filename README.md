@@ -1,3 +1,3 @@
 # Le-New
-The beginning of something new
+The beginning of something new.
 We out here with it!
